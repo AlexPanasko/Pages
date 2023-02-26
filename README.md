@@ -3,4 +3,4 @@
 **Пол**: мужской.  
 **Сфера деятельности**: строительство.  
 
-![Photo](https://drive.google.com/file/d/1LrKjo3f14iZaKAzexpzkbAAw2t2sZHon/view?usp=sharing)
+![Я](https://user-images.githubusercontent.com/125549725/221430696-b253580d-ae71-4d54-b516-e6038237e89a.jpg)
